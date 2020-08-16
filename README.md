@@ -9,7 +9,7 @@ Something about me:
 - 👯 I’m looking to collaborate on Open Source Project in year 2020.
 - 🤔 I’m looking for Job Opportunities.
 - 💬 Ask me about about my projects.
-- 📫 How to reach me: Email-id : jpriyal126@gmail.com | Linkedin - https://www.linkedin.com/in/priyal-jain-7b7a66194/
+- 📫 How to reach me: Email-id : jpriyal126@gmail.com | Linkedin - https://www.linkedin.com/in/priyal-jain-7b7a66194/  |  Naukri.com - https://www.naukri.com/mnjuser/profile?id=&altresid
 
   ###
   
